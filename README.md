@@ -1,2 +1,2 @@
 # gender
-non biney
+furry male
